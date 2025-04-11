@@ -1,2 +1,2 @@
-# wezesha.github.io
-Wezesha Youth Initiative Kenya is a community-based organization committed to empowering youth across various aspects of life. Founded with the goal of transforming lives, especially in underserved areas such as Kibra,
+# zicet.github.io
+Zivai Community Empowerment Trust (ZICET) is a Community Based Organisation (CBO) that was established in 2015 by women and youths in Mutare and Mutasa Rural District after realising that most women and youths are being left out in the economic development agenda.
